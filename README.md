@@ -7,7 +7,7 @@ Aleyna Buse Güzel:116200149
 
 Emel Doğru
 
-Tolga Aslım
+Tolga Aslım:116200058
 
 Batuhan Önde
 
