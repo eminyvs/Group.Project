@@ -5,7 +5,7 @@ Emin Yavaş
 
 Aleyna Buse Güzel: 116200149
 
-Emel Doğru
+Emel Doğru: 116202066
 
 Tolga Aslım: 116200058
 
